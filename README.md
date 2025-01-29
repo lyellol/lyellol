@@ -1,2 +1,1 @@
-- Hi, I’m @lyellol😋
-- I’m currently learning physiscs.
+- Hi, I’m Jiyuan Liu.
